@@ -26,3 +26,4 @@
   ##Additional Info: 
   - Github: [oconnorjohnson](https://github.com/oconnorjohnson)
   - Email: dojohnson@ucdavis.edu 
+![Untitled_ Jun 23, 2022 7_22 PM](https://user-images.githubusercontent.com/100829940/175450154-897744ae-81d4-4d8c-9144-893d4f8cdebd.gif)
